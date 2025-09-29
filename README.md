@@ -33,5 +33,8 @@
 
 ---
 
+🤝 **Open to collaborations, freelance projects, and new connections — feel free to reach out!**  
+
+---
 
 🔥 _Grinding skills, hustling ideas, and building cool things._
